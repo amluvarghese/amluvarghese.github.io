@@ -1,2 +1,0 @@
-# amluvarghese.github.io
-amluvarghese
